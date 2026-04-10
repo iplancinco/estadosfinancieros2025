@@ -1,1 +1,12 @@
-# estadosfinancieros2025
+# INVERSIONES PLAN CINCO SAS 
+
+
+# DOCUMENTACION LEGAL 
+
+
+# ESTADOS FINANCIEROS
+
+
+## TABLA DE CONTENIDO
+
+1. [Estados Financieros IP5 2025 con notas]
